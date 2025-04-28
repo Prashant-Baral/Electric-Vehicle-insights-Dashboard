@@ -89,7 +89,7 @@ The project aims to support policymakers, businesses, and environmental advocate
 **Prashant Baral**  
 B.Tech CSE Student @ Lovely Professional University | Data Science Enthusiast
 
-🔗 [Connect with me on LinkedIn](https://www.linkedin.com/in/prashant-baral)
+🔗 [Connect with me on LinkedIn](https://www.linkedin.com/in/prashant-baral-286282278/)
 
 ---
 
